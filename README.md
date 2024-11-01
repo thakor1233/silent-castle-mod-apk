@@ -6,7 +6,7 @@ Silent Castle MOD APK is a horror-themed, survival strategy game where you must 
 
 
 
-👉Dowload here 👻🧛🏻: https://modhello.com/
+👉Dowload here 👻🧛🏻: [Silent Castle MOD APK](https://modhello.com/silent-castle/)
 ---
 
 ### Features of Silent Castle MOD APK
